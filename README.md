@@ -6,6 +6,7 @@
 - 😄 Pronouns: miss
 - ⚡ Fun fact:  deep breath before deep-search
 ![1000168064](https://github.com/user-attachments/assets/cc5fed85-1f25-4fe2-a9e0-8dd5451f35fd)
+photo credit: mockup
 
 <!---
 GHBCOPS1/GHBCOPS1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
